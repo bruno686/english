@@ -6,7 +6,8 @@
 
 [2020.4.22](https://bruno686.github.io/english/EA2020_4_22.html)
 
-[2020.4.23](https://bruno686.github.io/english/EA2020_4_23.html)but待解决
+[2020.4.23](https://bruno686.github.io/english/EA2020_4_23.html)
 
 [2020.4.24](https://bruno686.github.io/english/EA2020_4_24.html)
 
+[2020.4.25](https://bruno686.github.io/english/EA2020_4_25.html)
