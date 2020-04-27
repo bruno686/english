@@ -11,3 +11,5 @@
 [2020.4.24](https://bruno686.github.io/english/EA2020_4_24.html)
 
 [2020.4.25](https://bruno686.github.io/english/EA2020_4_25.html)
+
+[2020.4.26.word](https://bruno686.github.io/english/EA2020_4_26_word.html)
