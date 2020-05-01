@@ -17,3 +17,7 @@
 [2020.4.27](https://bruno686.github.io/english/EA2020_4_27.html)
 
 [2020.4.28](https://bruno686.github.io/english/EA2020_4_28.html)
+
+[2020.4.29](https://bruno686.github.io/english/EA2020_4_29.html)
+
+[2020.4.30](https://bruno686.github.io/english/EA2020_4_30.html)
